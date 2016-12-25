@@ -1,0 +1,1 @@
+This is the first page from manfred xue. A new hard way to the new life.
